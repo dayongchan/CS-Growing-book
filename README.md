@@ -185,7 +185,7 @@ HTML5与CSS3基础教程  [百度云下载链接](https://pan.baidu.com/s/1HGfud
 
 HTML5揭秘  [百度云下载链接](https://pan.baidu.com/s/1dWmyml898oZ6AchCsL1KoQ) 密码:ell1
 
-HTML5揭秘  [百度云下载链接](https://pan.baidu.com/s/1DgGxjt3xoIAS2kSNTB4zKQ) 密码:n2pp
+JavaScript高效图形编程  [百度云下载链接](https://pan.baidu.com/s/1DgGxjt3xoIAS2kSNTB4zKQ) 密码:n2pp
 
 Javascrip高级程序设计 [百度云下载链接](https://pan.baidu.com/s/1cuCjV0PH21_OZQQKoOppFw) 密码:wm3v
 
